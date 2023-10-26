@@ -10,3 +10,6 @@ Meu nome e Andris Messi R. Mascarenhas.
 ### Voce pode entrar em contato comigo 📫
 
 andris.mascarenhas@escola.pr.gov.br
+
+
+![](https://media.tenor.com/v_e613Qc4CEAAAAd/kiciunia-lawunia.gif)
